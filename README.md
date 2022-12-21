@@ -1,0 +1,2 @@
+# kunti
+ig crack
